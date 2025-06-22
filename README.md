@@ -1,3 +1,5 @@
 ## About-her
 
-Nuh-uh
+Nuh-uh (jk) 🥀
+yes im Jeth from pony town
+
